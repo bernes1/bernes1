@@ -1,4 +1,4 @@
 ### Hi there 👋
- I am a Aspiring Software Developer.
+ I am a Software Developer.
  
- Currenly i am learning more about pyhton and TS/JS
+ Currenly studying 
