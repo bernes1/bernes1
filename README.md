@@ -3,4 +3,4 @@
  
  i like to make things that make life better and suck less. 
  
- Currenly studying 
+ Currently Studying IM(information technology and media production)
